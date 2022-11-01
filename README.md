@@ -1,4 +1,5 @@
-- - 👋 Hola, soy @Astrid-Macana
+-👋 Hola, soy @Astrid-Macana
+
 Busco aprender nuevas cosas que me reten y me permitan conocer lo perseverante que puedo ser, que me demuestre que los limites no existen cuando el querer es poder .
 
 - 👀 Estoy interesada en crecer profesionalmente 
